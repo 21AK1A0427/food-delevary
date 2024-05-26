@@ -3,7 +3,7 @@ SLASH MARK INTERNSHIP ADVANCED - LEVEL
 # LIVE DEMO
 # https://21ak1a0427.github.io/food-delevary/
 # OUTPUT
-![My Portfolio - Google Chrome 24-05-2024 14_25_25](https://github.com/21AK1A0427/url_shorter/assets/121687538/f3cb4bae-7a08-44ae-8a04-47ed6489b6bd)
+![My Portfolio - Google Chrome 24-05-2024 14_25_25](https://github.com/21AK1A0427/portfolio/assets/121687538/f25bd569-aa61-4bd6-8db1-dcd9358794cf)
 ![My Portfolio - Google Chrome 24-05-2024 14_25_46](https://github.com/21AK1A0427/url_shorter/assets/121687538/437d68dd-2da0-4168-b0c5-4acd9208a650)
 ![My Portfolio - Google Chrome 24-05-2024 14_25_54](https://github.com/21AK1A0427/url_shorter/assets/121687538/90a73bbf-14ca-4060-b769-0638f885b011)
 ![My Portfolio - Google Chrome 24-05-2024 14_26_05](https://github.com/21AK1A0427/url_shorter/assets/121687538/a0ea9f07-16db-4fc6-b9fd-eede617cece9)
