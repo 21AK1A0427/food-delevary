@@ -7,7 +7,7 @@ SLASH MARK INTERNSHIP ADVANCED - LEVEL
 ![My Portfolio - Google Chrome 24-05-2024 14_25_46](https://github.com/21AK1A0427/food-delevary/assets/121687538/44445822-61d8-4349-8045-750d17cfa747)
 ![My Portfolio - Google Chrome 24-05-2024 14_25_54](https://github.com/21AK1A0427/food-delevary/assets/121687538/e460d4de-af57-4532-80f4-130faf059c3e)
 ![My Portfolio - Google Chrome 24-05-2024 14_26_05](https://github.com/21AK1A0427/food-delevary/assets/121687538/585e38fd-4f2b-4626-a6ba-e28a8bac5059)
-![My Portfolio - Google Chrome 24-05-2024 14_26_23](https://github.com/21AK1A0427/url_shorter/assets/121687538/cb96892c-9493-4f0a-b1d3-38d07f8f78e9)![My Portfolio - Google Chrome 24-05-2024 14_26_23](https://github.com/21AK1A0427/food-delevary/assets/121687538/15e1039d-158e-439d-a19f-8ed3be4eb582)
+![My Portfolio - Google Chrome 24-05-2024 14_26_23](https://github.com/21AK1A0427/food-delevary/assets/121687538/15e1039d-158e-439d-a19f-8ed3be4eb582)
 ![My Portfolio - Google Chrome 24-05-2024 14_26_31](https://github.com/21AK1A0427/food-delevary/assets/121687538/754ff6a2-48f8-445b-baf5-b8f43933e8a5)
 ![My Portfolio - Google Chrome 24-05-2024 14_26_38](https://github.com/21AK1A0427/food-delevary/assets/121687538/15761bf2-8ee2-4e40-82c3-f0271f40f3ce)
 ![My Portfolio - Google Chrome 24-05-2024 14_27_24](https://github.com/21AK1A0427/food-delevary/assets/121687538/784c4b62-544f-435c-8c07-8d176c98f7f3)
